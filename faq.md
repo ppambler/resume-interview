@@ -8,4 +8,13 @@
 
 ➹：[别再编那些垃圾假项目经验了，我来教程序员新人求职如何脱颖而出_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili](https://www.bilibili.com/video/BV1zx411R7tb/?spm_id_from=333.788.videocard.2)
 
+## 2、简历上是否要放自己的头像？
+
+## 3、邮箱名？
+
+➹：[应届生投简历用什么邮箱比较好? - 知乎](https://www.zhihu.com/question/370122655)
+
+➹：[什么样的邮箱名才是最主流，最正式的？ - 知乎](https://www.zhihu.com/question/36106968)
+
+
 
